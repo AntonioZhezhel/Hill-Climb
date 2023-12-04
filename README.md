@@ -1,1 +1,1 @@
-# Hill-Climb![Uploading Screenshot_2.png…]()
+# Hill-Climb![Uploading Screenshot_2.png]
